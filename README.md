@@ -1,1 +1,1 @@
-UK Based engineering manager and casually developing tiny apps.
+UK Based engineering manager casually developing tiny apps.
